@@ -28,7 +28,7 @@
 
 [Acer Swift 3](https://www.amazon.in/Acer-14-inch-Display-Graphics-SF314-42/dp/B08NXYT6VY/) ₹ 59,990.00
 
-[Lenevo](https://www.flipkart.com/lenovo-ideapad-5-ryzen-7-octa-core-4700u-8-gb-512-gb-ssd-windows-10-home-14are05-thin-light-laptop/p/itm74bdb1c4b2516?pid=COMFXVAS6FYXYMHW&lid=LSTCOMFXVAS6FYXYMHWII0UO7&marketplace=FLIPKART&q=laptops&store=6bo%2Fb5g&srno=s_3_65&otracker=search&otracker1=search&fm=SEARCH&iid=060d609c-ac94-4481-95b3-fc74d81603d0.COMFXVAS6FYXYMHW.SEARCH&ppt=sp&ppn=sp&ssid=4swxm304a2eqmjuo1616940991762&qH=c06ea84a1e3dc3c6) ₹ 59,990.00
+[Lenevo](https://www.amazon.in/Lenovo-Integrated-Graphics-Graphite-81YM002TIN/dp/B087D3VVW3/) ₹ 58,990.00
 
 [Asus Vivo](https://www.amazon.in/ASUS-VivoBook-15-6-inch-Integrated-M513IA-EJ310T/dp/B08CHZGPCB/ref=sr_1_22?dchild=1&keywords=ryzen+5+laptop&qid=1616746845&refinements=p_85:10440599031,p_36:-6000000&rnid=1318502031&rps=1&s=computers&sr=1-22) ₹ 51,990.00
 
