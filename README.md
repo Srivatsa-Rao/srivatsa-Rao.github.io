@@ -32,6 +32,8 @@
 
 [Asus Vivo](https://www.amazon.in/ASUS-VivoBook-15-6-inch-Integrated-M513IA-EJ310T/dp/B08CHZGPCB/ref=sr_1_22?dchild=1&keywords=ryzen+5+laptop&qid=1616746845&refinements=p_85:10440599031,p_36:-6000000&rnid=1318502031&rps=1&s=computers&sr=1-22) ₹ 51,990.00
 
+[HP Pavilion](https://www.amazon.in/HP-Pavilion-Graphics-14-inch-Keyboard/dp/B08WBB369L/) - ₹ 62,990.00 -good value for money 
+
 ## Normal
 
 [Dell Vostro ](https://www.amazon.in/Dell-Display-Ryzen-5-Graphics-D552122WIN9DE/dp/B08MQLRQ9K) ₹ 45,490.00
